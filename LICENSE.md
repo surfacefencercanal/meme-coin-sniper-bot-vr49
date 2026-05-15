@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative Executor for meme coin sniper bot | pump-detection & bundle-transactions, the #1 meme coin sniper bot. Includes pump-detection and
 
 
 
